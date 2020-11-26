@@ -1,0 +1,2 @@
+# advantages-and-disadvantages-of-an-HSA
+A Health Savings Account (HSA) is a special type of personal savings account that deposits tax-advantaged dollars that can be used to pay medical expenses today and build the balance with tax-free interest for retirement. To qualify for an HSA, an individual has to be covered by a qualifying high-deductible health plan (HDHP).Employers can provide these benefits with even more tax savings in a Section 125 pre-tax cafeteria plan for employees.Here are the pro’s and con’s of owning an HSA.
